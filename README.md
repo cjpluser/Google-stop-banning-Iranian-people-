@@ -2,7 +2,7 @@
  stop banning Iranian people!
  ------
  
-**Google, stop the ban on technology and technology against the Iranian people😐**
+**Google, stop the ban on technology against the Iranian people😐**
 
 These days, incent people in Iran (including talented developers and artists) are Victims of political 
 games of the Iran regime and USA government.
